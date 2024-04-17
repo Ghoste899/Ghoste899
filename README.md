@@ -7,3 +7,4 @@
 - 😄 Pronouns: it
 - ⚡ Fun fact: I have 1 brain cell.
 
+![007_rickasly](https://github.com/Ghoste899/Ghoste899/blob/main/007_rick_asly.jpg)
